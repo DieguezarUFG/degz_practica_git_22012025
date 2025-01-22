@@ -1,1 +1,1 @@
-# degz-_-practica_git_22012025
+# degz_practica_git_22012025
